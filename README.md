@@ -1,0 +1,3 @@
+rookie 
+glad 
+
